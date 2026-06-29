@@ -1,4 +1,4 @@
-# 
+# Élite Omni Flash scripts. Avec traitement à faible latence et assistant vocal — optimisé pour des performances et une efficacité maximales.
 
 
 
